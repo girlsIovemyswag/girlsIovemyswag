@@ -1,5 +1,5 @@
-## Hi there 👋
-
+player 380, pass.
+read rentry for more, sign atabook to stay swaggy like me!
 <!--
 **girlsIovemyswag/girlsIovemyswag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
