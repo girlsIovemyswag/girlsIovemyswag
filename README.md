@@ -1,5 +1,5 @@
 
-   amy amy amy amy 
+   riding the cyclone atm
 <!--
 **girlsIovemyswag/girlsIovemyswag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
