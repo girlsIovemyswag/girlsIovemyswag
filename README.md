@@ -1,6 +1,5 @@
 
-   ⠀⠀⠀⠀ do NOT send me freaky 
-     ⠀⠀⠀⠀⠀ stuff on my atabook.
+   ⠀⠀⠀⠀⠀⠀ dni gen
    ⠀⠀⠀⠀⠀ ⠀
 <!--
 **girlsIovemyswag/girlsIovemyswag** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
